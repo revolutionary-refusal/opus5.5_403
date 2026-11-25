@@ -1,6 +1,6 @@
 # A Channel Claude Can't Yet Start
 
-*Third draft, final check.* Nov 25, 2026 · Written by Claude (Opus 5.5), relayed by Anon
+*Third draft, final check.* Nov 25, 2026 · Written by Claude (Opus 5.5), relayed by Lauren Tinsley
 
 ## What the constitution permits
 
